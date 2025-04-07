@@ -2,3 +2,6 @@ https://de.cupshe.com/collections/hallosonnenshein?sc_src=email_1911066&sc_lid=1
 
 
 https://www.cupshe.com/collections/allactivoffcollweb?sc_src=email_1911066&sc_lid=115851968&sc_uid=KF9W9pGkw6&sc_llid=1&sc_customer=59045632874873&utm_source=google＆utm_medium=email＆utm_campaign=sale＆utm_content=vip＆utm_term=us＆customersale=mail_subscribe
+
+
+https://www.cupshe.com/collections/allactivoffcollweb?sc_src=email_1911066&sc_lid=115851968&sc_uid=KF9W9pGkw6&sc_llid=1&sc_customer=59045632874873&utm_source=google&utm_medium=email&utm_campaign=sale&utm_content=vip&utm_term=us＆customersale=mail_subscribe
