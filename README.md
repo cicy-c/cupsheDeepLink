@@ -1,3 +1,12 @@
+https://link.cupshe.com/u/nrd.php?p=LrgtbdNfUw_900109_796782_1_23&ems_l=1009485&i=1&d=MTExMjc5MTg1%7CTHJndGJkTmZVdw%3D%3D%7CVVMrQXV0b21hdGlvbitXZWxjb21lKzI%3D%7CMTIwNTM2Njg%3D%7C&_esuh=_11_19f96faa080c501be1011b9709b34f9571bd2545d0e348b7677fa97ddbd3c633
+
+https://cupshe.onelink.me/JLpe?deep_link_value=https://www.cupshe.com/products/on-vacation-olive-one-piece-swimsuit-CAA12E5B073RR?distinct_id=ed236cff-2263-4f66-bea7-2c2c17f493bf&theme_type=vacation&utm_source=facebook&utm_content=consideration&utm_term=%7BFacebook_Desktop_Feed%7D_%7Bfb%7D&utm_medium=ocpm&utm_campaign=facebook-consideration-us-all%20products-dpa-AIaudience-0.05-0.08-YYY-241113&sence_type=3&utm_medium=ocpm&af_sub1=ocpm&utm_term=%7BFacebook_Desktop_Feed%7D_%7Bfb%7D&af_ad=%7BFacebook_Desktop_Feed%7D_%7Bfb%7D&utm_content=consideration&af_adset=consideration&c=facebook-consideration-us-all%20products-dpa-AIaudience-0.05-0.08-YYY-241113&pid=facebook&smartBanner=1&af_banner=true&af_channel=9_US_241225
+
+https://au.cupshe.com/products/front-hook-strapless-bra-CAA11B4J002DD?skucode=CAA11B4J002DDM&utm_source=google&utm_medium=cpc&utm_campaign=AU-PMAX-Core-MCG-Feed-ForNew-241023&utm_term={21830677410}_{}_{}&gad_source=1&gclid=CjwKCAjwktO_BhBrEiwAV70jXsSpFTFSy77mHTFXDy-e5hD-7Dl4fqJcQIJps_z-XNn6TUcwwbDMqRoC5HEQAvD_BwE
+
+以上是回归链接
+
+
 https://de.cupshe.com/collections/hallosonnenshein?sc_src=email_1911066&sc_lid=115851968&sc_uid=KF9W9pGkw6&sc_llid=1&sc_customer=59045632874873&utm_source=google%EF%BC%86utm_medium=email%EF%BC%86utm_campaign=sale%EF%BC%86utm_content=vip%EF%BC%86utm_term=us%EF%BC%86customersale=mail_subscribe
 
 
