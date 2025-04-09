@@ -32,6 +32,6 @@ https://www.cupshe.com/collections/tuijian-0205?sc_src=email_1924889&sc_lid=1167
 https://www.cupshe.com/collections/swimsuits-sale-w?theme_type=vacation&utm_source=google&utm_medium=cpc&utm_campaign=US-ROW-Brand-TCPA-20171030&utm_term={968240285}_{121551926857}_{706158895893}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfRKuWPkFHnEgyCHGO48HVz3fg3z9jzHNHEEAtM5FNGcscZRlpcmENMaAt6jEALw_wcB
 https://uk.cupshe.com/collections/beach-dress?theme_type=vacation&utm_source=google&utm_medium=cpc&utm_campaign=UK-NonBrand-MCG-Dresses-20221212-EM&utm_term={14015162347}_{132010546984}_{657413850853}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfQb9TsIfepOouqi1Rvq2xJeUhO_BcX7amjy-g9dJGl4SNlWKrMJC1AaAmGrEALw_wcB
 
-https://www.cupshe.com/collections/smswelcomecoupon?utm_source=google&utm_medium=cpc&utm_campaign=US-ROW-Brand-TCPA-20171030&utm_term={968240285}_{121551926857}_{706158895893}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfRKuWPkFHnEgyCHGO48HVz3fg3z9jzHNHEEAtM5FNGcscZRlpcmENMaAt6jEALw_wcB
-https://uk.cupshe.com/collections/beach-dress?theme_type=vacation&utm_source=google&utm_medium=cpc&utm_campaign=UK-NonBrand-MCG-Dresses-20221212-EM&utm_term={14015162347}_{132010546984}_{657413850853}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfQb9TsIfepOouqi1Rvq2xJeUhO_BcX7amjy-g9dJGl4SNlWKrMJC1AaAmGrEALw_wcB
+https://www.cupshe.com/collections/smswelcomecoupon?utm_source=google&utm_medium=cpc&utm_campaign=US-ROW-Brand-TCPA-20171030&utm_term={968240285}_{121551926857}_{706158895893}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfRKuWPkFHnEgyCHGO48HVz3fg3z9jzHNHEEAtM5FNGcscZRlpcmENMaAt6jEALw_wcB&customersale=sms_subscribe11111
+
 
