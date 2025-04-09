@@ -7,7 +7,6 @@ https://cupshe.onelink.me/GZh3?af_xp=custom&pid=googleadwords_int&c=USAPP-W2A-IO
 
 https://link.cupshe.com/u/nrd.php?p=3H543klEb8_740870_1911641_1_13&ems_l=2639593&i=1&d=MTE2NDEzMjc5%7CM0g1NDNrbEViOA%3D%3D%7CVVMtMjAyNTA0MDUtQg%3D%3D%7CMTA0ODMzMTk%3D%7C&_esuh=_11_150df4d312dd278d8effe1af4bf4a0a2693830cc89f23afecdce0ab641f14529
 
-https://play.google.com/apps/launch?id=com.cupshe.cupshe&gclid=Cj0KCQjwkZm_BhDrARIsAAEbX1F_n5Dr3rE18dkleLvtaeFg-Dn1wc5LzZIfZOc8lvJhj2wBmX0ChvkaAmaKEALw_wcB&referrer=gclid%3DCj0KCQjwkZm_BhDrARIsAAEbX1F_n5Dr3rE18dkleLvtaeFg-Dn1wc5LzZIfZOc8lvJhj2wBmX0ChvkaAmaKEALw_wcB&gref=EkUKPQoJCPCRmb8GEOsBEiwAARtfUX-fkOvesTXx2SV4u-1p4WD4OfXBzkvNkh9k5zyW8mGPbAGZfQKG-RoCZooQAvD_BwEYzsGo7gIiBggBGBQ4AQ
 
 以上是回归链接
 
