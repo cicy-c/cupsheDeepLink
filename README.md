@@ -33,4 +33,6 @@ https://uk.cupshe.com/collections/beach-dress?theme_type=vacation&utm_source=goo
 
 https://www.cupshe.com/collections/smswelcomecoupon?utm_source=google&utm_medium=cpc&utm_campaign=US-ROW-Brand-TCPA-20171030&utm_term={968240285}_{121551926857}_{706158895893}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfRKuWPkFHnEgyCHGO48HVz3fg3z9jzHNHEEAtM5FNGcscZRlpcmENMaAt6jEALw_wcB&customersale=sms_subscribe11111
 
+https://www.cupshe.com/collections/smswelcomecoupon?utm_source=google&utm_medium=cpc&utm_campaign=US-ROW-Brand-TCPA-20171030&utm_term={968240285}_{121551926857}_{706158895893}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfRKuWPkFHnEgyCHGO48HVz3fg3z9jzHNHEEAtM5FNGcscZRlpcmENMaAt6jEALw_wcB&customersale=sms_subscribe[]!.+={1}_1111
+
 
