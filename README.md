@@ -1,3 +1,7 @@
+https://link.cupshe.com/u/nrd.php?p=KF9W9pGkw6_3_1924889_1_15&ems_l=2648545&i=1&d=MTE2NzAwODg3%7CS0Y5VzlwR2t3Ng%3D%3D%7CY2grRW1hcnN5cytkZW1vLTEy%7CNTkwNDU2MzI4NzQ4NzM%3D%7CZ29vZ2xl%7CZW1haWw%3D%7Cc2FsZQ%3D%3D%7Cdmlw%7CdXM%3D%7C&_esuh=_11_2e3845d0c4bbc54ceef8f80f089071f490cc13391b01d2fdfcbbb812f7ccbb19
+
+https://de.cupshe.com/collections/hallosonnenshein?sc_src=email_1924889&sc_lid=116700887&sc_uid=KF9W9pGkw6&sc_llid=3&utm_source=Emarsys&utm_medium=email&utm_campaign=ch+Emarsys+demo-12&sc_customer=59045632874873&utm_source=google&utm_medium=email&utm_campaign=sale&utm_content=vip&utm_term=us&customersale=mail_subscribe
+------------------------------------
 https://uk.cupshe.com/collections/beach-dress?theme_type=vacation&utm_source=google&utm_medium=cpc&utm_campaign=UK-NonBrand-MCG-Dresses-20221212-EM&utm_term={14015162347}_{132010546984}_{657413850853}&gad_source=1&gclid=Cj0KCQiAy8K8BhCZARIsAKJ8sfQb9TsIfepOouqi1Rvq2xJeUhO_BcX7amjy-g9dJGl4SNlWKrMJC1AaAmGrEALw_wcB
 
 https://cupshe.bttn.io/collections/cupshe-x-jojo-fletcher?cjdata=MXxOfDB8WXww&btn_ref=srctok-c06e5a539afc262f_ca&btn_reach_pub=100958305&btn_reach_pub_name=SafeOpt.com&btn_cj_sid=&cjevent=4d20cd00146e11f0816300c80a82b82d&utm_medium=affiliate&utm_source=CJ&utm_content=100958305&utm_campaign=4472073&btn_interstitial_id=modland%2Fdefault&btn_variation_type=interstitial_routeOptimized
