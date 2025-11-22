@@ -1,3 +1,7 @@
+emarsys邮件
+https://link.cupshe.com/u/nrd.php?p=KF9W9pGkw6_3_1924889_1_15&ems_l=2648545&i=1&d=MTE2NzAwODg3%7CS0Y5VzlwR2t3Ng%3D%3D%7CY2grRW1hcnN5cytkZW1vLTEy%7CNTkwNDU2MzI4NzQ4NzM%3D%7CZ29vZ2xl%7CZW1haWw%3D%7Cc2FsZQ%3D%3D%7Cdmlw%7CdXM%3D%7C&_esuh=_11_2e3845d0c4bbc54ceef8f80f089071f490cc13391b01d2fdfcbbb812f7ccbb19
+
+跳转到首页
 https://cupshe.onelink.me/GZh3?af_xp=social&pid=custom&c=app_entry_test&af_android_url=https://www.cupshe.com/collections/dress&jumpUrl=Cupshe://hybrid/page/home
 
 ---------------------------------------------------------
