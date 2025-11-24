@@ -1,4 +1,4 @@
-cupshe://cupshe.com/product?source=google&variantId=123&skc=xxxx
+cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
 https://cupshe.bttn.io/collections/cupshe-x-jojo-fletcher?cjdata=MXxOfDB8WXww&btn_ref=srctok-82e4c09293ebd286_ca&btn_reach_pub=100958305&btn_reach_pub_name=SafeOpt.com&btn_cj_sid=&cjevent=398455db143011f0838c003b0a1eba23&utm_medium=affiliate&utm_source=CJ&utm_content=100958305&utm_campaign=4472073&btn_interstitial_id=modland%2Fdefault&btn_variation_type=interstitial
 
