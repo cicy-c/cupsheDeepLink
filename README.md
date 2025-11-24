@@ -2,6 +2,8 @@ cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
 https://cupshe.bttn.io/collections/cupshe-x-jojo-fletcher?cjdata=MXxOfDB8WXww&btn_ref=srctok-82e4c09293ebd286_ca&btn_reach_pub=100958305&btn_reach_pub_name=SafeOpt.com&btn_cj_sid=&cjevent=398455db143011f0838c003b0a1eba23&utm_medium=affiliate&utm_source=CJ&utm_content=100958305&utm_campaign=4472073&btn_interstitial_id=modland%2Fdefault&btn_variation_type=interstitial
 
+https://cupshe.bttn.io/home?cjdata=MXxOfDB8WXww&btn_ref=srctok-d4fe8a94b1263b5d_ca&btn_reach_pub=100107448&btn_reach_pub_name=Skimlinks&btn_cj_sid=129857X1600501Xe74249c81499b8fe1444cbb6ef9e1ce3&cjevent=08a56602fce611ef831d01970a82b836&utm_medium=affiliate&utm_source=CJ&utm_content=100107448&utm_campaign=5370367&btn_interstitial_id=modland%2Fdefault&btn_variation_type=interstitial
+
 emarsys邮件
 https://link.cupshe.com/u/nrd.php?p=KF9W9pGkw6_3_1924889_1_15&ems_l=2648545&i=1&d=MTE2NzAwODg3%7CS0Y5VzlwR2t3Ng%3D%3D%7CY2grRW1hcnN5cytkZW1vLTEy%7CNTkwNDU2MzI4NzQ4NzM%3D%7CZ29vZ2xl%7CZW1haWw%3D%7Cc2FsZQ%3D%3D%7Cdmlw%7CdXM%3D%7C&_esuh=_11_2e3845d0c4bbc54ceef8f80f089071f490cc13391b01d2fdfcbbb812f7ccbb19
 
