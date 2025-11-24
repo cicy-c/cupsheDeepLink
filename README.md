@@ -1,3 +1,5 @@
+https://us-release.kapeixi.cn/app/redirect_v3.html?brandId=1&channelId=1&terminalId=2&siteId=1&needToken=1&seoUrl=p-blackfridaywarmup&skcCode=120000201893
+
 http://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
 cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
