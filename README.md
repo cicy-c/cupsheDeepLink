@@ -1,4 +1,4 @@
-http://cupshe.com/product?source=google&variantId=123&skc=120000201893
+cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
 cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
