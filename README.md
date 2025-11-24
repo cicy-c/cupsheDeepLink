@@ -1,5 +1,9 @@
 https://us-release.kapeixi.cn/app/redirect_v3.html?brandId=1&channelId=1&terminalId=2&siteId=1&needToken=1&seoUrl=p-blackfridaywarmup&skcCode=120000201893
 
+https://cupshe.com/app/redirect_v3_preview.html?brandId=1&channelId=1&terminalId=2&siteId=1&needToken=1&iosVersion=11&anVersion=11&pageId=1172&id=195&collectionId=124213
+
+https://us-release.kapeixi.cn/app/redirect_v3.html?brandId=1&channelId=1&terminalId=2&siteId=1&needToken=1&seoUrl=p-blackfridaywarmup&skcCode=120000201893
+
 http://cupshe.com/product?source=google&variantId=123&skc=120000201893
 
 cupshe://cupshe.com/product?source=google&variantId=123&skc=120000201893
